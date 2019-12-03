@@ -1,3 +1,14 @@
-## A New Post
+## Just One Dude Studios
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+
+
+
+
+### Our Games
+
+ [Opening Up](http://openingup.com/) - [Steam Page](https://store.steampowered.com/app/1103890/Opening_Up/)
+ 
+ 
+### Contact Us
+
+contact@justonedude.com
