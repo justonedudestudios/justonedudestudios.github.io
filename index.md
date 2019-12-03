@@ -1,8 +1,3 @@
-## Just One Dude Studios
-
-
-
-
 
 ### Our Games
 
