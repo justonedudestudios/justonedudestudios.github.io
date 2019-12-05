@@ -5,4 +5,4 @@
  
 ### Contact Us
 
-contact@justonedude.com
+info@justonedude.com
